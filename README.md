@@ -1,0 +1,1 @@
+# auto-max-fr-stacking-hub
